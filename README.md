@@ -1,2 +1,0 @@
-# ashinbasheer.github.io
-FIFA
